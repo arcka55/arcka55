@@ -1,4 +1,4 @@
-# Hey there! I'm [Nama Anda]! 🌟
+# Hey there! I'm Arcka! 🌟
 
 Welcome to my GitHub playground! I'm a web wizard with a knack for crafting awesome digital experiences. Here's a peek at my journey so far:
 
